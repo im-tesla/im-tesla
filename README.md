@@ -18,4 +18,4 @@ When I'm not coding or breaking things apart, you can find me:
 
 - 🚁 Flying FPV drones, embracing the sky with a bird's-eye view.
 - 🏎️ Racing RC cars, feeling the thrill of speed on a miniature scale.
-- 🎧 Audiophile, seeking the perfect sound, from the deepest bass to the highest treble.
+- 🏐 Playing volleyball, spiking and setting my way to victory!

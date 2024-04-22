@@ -18,4 +18,4 @@ When I'm not coding or breaking things apart, you can find me:
 
 - 🚁 Flying FPV drones, embracing the sky with a bird's-eye view.
 - 🏎️ Racing RC cars, feeling the thrill of speed on a miniature scale.
-- 🏐 Playing volleyball, spiking and setting my way to victory!
+- 🏐 Playing volleyball
